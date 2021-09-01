@@ -1,1 +1,2 @@
 - I'll be fixing this up later.
+- p.s. jesus fucking christ i hate kaeluc i just like matching with my friend please don't come at me for sitting next to them
