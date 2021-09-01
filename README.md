@@ -1,2 +1,2 @@
 - I'll be fixing this up later.
-- p.s. jesus fucking christ i hate kaeluc i just like matching with my friend please don't come at me for sitting next to them
+- p.s. i don't like kaeluc. i just like matching with my friend, please don't come at me for sitting next to them. not every pair is a ship.
