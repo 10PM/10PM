@@ -26,6 +26,7 @@ I'm really not the best at creating bios since I'm not great at remembering my e
      - I understand the Sworn Brothers sentiment and I won't attack you for it but if you ship them with incestual undertones, that's inexcusable.
  - Don't harass people for being doubles of you. Just hide them.
      - There will always be multiple versions of you in a world of media. I had to learn this, so should you.
+  - I'm not a fan of DSMP. I knew a couple of people from before they became MCYTers and they ghosted me once they became popular, so it leaves a bad taste in my memory.
 ### Anything else you want to say?
 - You guys should really try github for your bios, it's pretty swag.
 ![gif](https://user-images.githubusercontent.com/52664572/135260406-7f426160-3751-4031-8c7a-75de92c8fcc7.gif)
