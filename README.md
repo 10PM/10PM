@@ -5,7 +5,7 @@
 ## FAQ
    ### What's some basic info about you?
  - I have a multitude of names I'm okay with. **_Vin_**, **Kaz**, or **any of my current aliases** are fine.
-     - My name was Kaz MONTHS before Kazuha came out. Please don't attack me for my name.
+     - My name was Kaz years before Kazuha came out. Please don't attack me for my name.
  - I'm a dude. I don't really care what you call me though as long as you don't emphasize it.
  - I'm very childish in nature. Please excuse my immaturity, I'm trying to work on it.
  - I have an auditory processing disorder, so in the case of places that have voice chats, you may have to repeat yourself a few times if I ask.
