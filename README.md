@@ -1,12 +1,16 @@
-# 10PM's Corner (0.1.3)
+# 10PM's Corner (0.1.4)
 
-`Last updated: 09/29/21`
-
+`Last updated: 01/02/22`
+## TL;DR for those who don't want to read everything
+![jpg](https://cdn.discordapp.com/attachments/850759495541194752/927331468311683072/image0.jpg)
+- I'm Vin, I'm 19, and I come on here sometimes because I like making pony
+- I like Genshin Impact
+- DNI if that's a problem, I already get hate for it lol
 ## FAQ
    ### What's some basic info about you?
  - I have a multitude of names I'm okay with. **_Vin_**, **Kaz**, or **any of my current aliases** are fine.
-     - My name was Kaz years before Kazuha came out. Please don't attack me for my name.
- - I'm a dude. I don't really care what you call me though as long as you don't emphasize it.
+ - It would be nice if you remember to call me anything other than they/them. He or She is good.
+     - I don't use neos but I'm okay with it as long as the neos aren't based off of they/them pronouns.
  - I'm very childish in nature. Please excuse my immaturity, I'm trying to work on it.
  - I have an auditory processing disorder, so in the case of places that have voice chats, you may have to repeat yourself a few times if I ask.
 
@@ -14,19 +18,21 @@ I'm really not the best at creating bios since I'm not great at remembering my e
 
 ### What do you enjoy?
  - My current 'fandom' interest is **Genshin Impact**.
-     - America, AR53. Feel free to ask for my UID if we interact.
-- I also enjoy many other pieces of content, such as Nintendo games, `especially the MOTHER/Earthbound series` Your Turn to Die, Puyo Puyo, OMORI, Gantz, and a few unlisted series that I'm too embarrassed to disclose.
+     - America, AR56. I also have an alt in Asia, AR43. Feel free to ask for my UIDs if we interact.
+- I also enjoy many other pieces of content, such as Nintendo games, `especially the MOTHER/Earthbound series`. I also like Your Turn to Die, Puyo Puyo, OMORI, Gantz, and a few unlisted series that I'm too embarrassed to disclose.
 - I'm... kind of addicted to VRChat... I would rather be playing that over PT, where most of you come from.
      -  If you play it as well, let's play together. ^_^ Communication through VRC feels a bit better than being on PT.
 ### Is there anything I should avoid around you?
  - The general thing most people dislike. AKA any logical DNI criteria such as racism or homophobia.
  - **PLEASE FOR THE LOVE OF GOD STOP SENDING HATE TO ME.** 
      - I have a really bad history of PT stalkers, I'm very hide-heavy because of this. Don't take it to heart if I hide you.
- - If you ship Kaeluc/Luckae **as incest**, you're fucking weird.
-     - I understand the Sworn Brothers sentiment and I won't attack you for it but if you ship them with incestual undertones, that's inexcusable.
+     - I'm tired of people attacking me just for liking Genshin. I know I'm subhuman, I've been told this countless times.
+ - If you value the morals of fictional characters over real people's traumas... I don't want you anywhere near me.
+     - I don't want to get into details but people are really extreme when it comes to this. It's understandable if one is doing something illegal but if they're doing something with fictional characters just to cope, please just let them do it if it helps them...
  - Don't harass people for being doubles of you. Just hide them.
      - There will always be multiple versions of you in a world of media. I had to learn this, so should you.
-  - I'm not a fan of DSMP. I knew a couple of people from before they became MCYTers and they ghosted me once they became popular, so it leaves a bad taste in my memory.
+  - I'm uncomfortable with _unironic_ sexual topics.
+     - Jokes are fine but it's weird to talk about that kind of stuff especially if you're a minor.
 ### Anything else you want to say?
 - You guys should really try github for your bios, it's pretty swag.
 ![gif](https://user-images.githubusercontent.com/52664572/135260406-7f426160-3751-4031-8c7a-75de92c8fcc7.gif)
