@@ -29,6 +29,7 @@ I'm really not the best at creating bios since I'm not great at remembering my e
      - I'm tired of people attacking me just for liking Genshin. I know I'm subhuman, I've been told this countless times.
  - If you value the morals of fictional characters over real people's traumas... I don't want you anywhere near me.
      - I don't want to get into details but people are really extreme when it comes to this. It's understandable if one is doing something illegal but if they're doing something with fictional characters just to cope, please just let them do it if it helps them...
+     - If you're a proshipper though, I'd rather not deal with your weird shit.
  - Don't harass people for being doubles of you. Just hide them.
      - There will always be multiple versions of you in a world of media. I had to learn this, so should you.
   - I'm uncomfortable with _unironic_ sexual topics.
