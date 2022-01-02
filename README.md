@@ -2,7 +2,7 @@
 
 `Last updated: 01/02/22`
 ## TL;DR for those who don't want to read everything
-![jpg](https://cdn.discordapp.com/attachments/850759495541194752/927331468311683072/image0.jpg)
+![png](https://cdn.discordapp.com/attachments/850759495541194752/927333111744843807/A122AEE3-4198-4EF9-B3F4-5AA220AC7652.png)
 - I'm Vin, I'm 19, and I come on here sometimes because I like making pony
 - I like Genshin Impact
 - DNI if that's a problem, I already get hate for it lol
