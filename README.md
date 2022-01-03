@@ -1,4 +1,4 @@
-# 10PM's Corner (0.1.4)
+# 10PM's Corner (0.1.7)
 
 `Last updated: 01/02/22`
 ## TL;DR for those who don't want to read everything
