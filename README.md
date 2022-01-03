@@ -1,19 +1,15 @@
-# 10PM's Corner (0.1.7)
+# 10PM's Corner (0.1.8)
 
 `Last updated: 01/02/22`
 ## TL;DR for those who don't want to read everything
 ![png](https://cdn.discordapp.com/attachments/850759495541194752/927333111744843807/A122AEE3-4198-4EF9-B3F4-5AA220AC7652.png)
-- I'm Vin, I'm 19, and I come on here sometimes because I like making pony. 
-   - You can call me Cor instead if you already know a Vin lmao
+- I'm Vince, I'm 19, and I come on here sometimes because I like making pony. 
 - I like Genshin Impact
-- DNI if that's a problem, I already get hate for it lol
+   - DNI if that's a problem, I already get hate for it lol
 
-bro fuck i need a new name literally everyone has a friend that has the same name as my name or my previous aliases
-
-yall give me something im begging you i have no identity
 ## FAQ
    ### What's some basic info about you?
- - I have a multitude of names I'm okay with. **_Vin_**, **Cor**, **Kaz** or **any of my current aliases** are fine.
+ - I have a multitude of names I'm okay with. **_Vin_**, **Kaz** or **any of my current aliases** are fine.
  - It would be nice if you remember to call me anything other than they/them. He or She is good.
      - I don't use neos but I'm okay with it as long as the neos aren't based off of they/them pronouns.
  - I'm very childish in nature. Please excuse my immaturity, I'm trying to work on it.
