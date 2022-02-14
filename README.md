@@ -30,7 +30,7 @@
   <img align="right" alt="PNG" src="https://cdn.discordapp.com/attachments/733735929860194316/942331926050652190/image.png" width="300" height="300" />
       
       
-## DNI List
+## DNI List [long but optional to read]
 ### This is not definitive, but you're more likely to get hidden if you fit the category.
 
 - Close-minded people to the point of extremity
@@ -42,20 +42,22 @@
 
    - So many of you people need to realize that not everything is black and white when it comes to that.
  
-- You **directly** fuck people up, physically and/or mentally
+- You consistently **directly** fuck people up, physically and/or mentally
 
    - Also, unless they have gone after you personally, being uncomfortable with someone is not direct. Hide them for your safety.
-   
-   - If someone has directly screwed you up, I suggest telling them what they did wrong before shutting them off so they have a chance to learn from mistakes.
-     - An example of this would be one being completely ghosted by a friend even though they did not detect that something was wrong. How are they supposed to know what they did?
 
 - Excessive use of tone tags
 
    - I'm okay with tone tags if they're needed. Just... Please don't use them in every sentence. It feels like a weird filter. 
+
+- Compulsive liars or just big liars in general I really can't trust people like you because I'm easily manipulated. </3
+   - This one is probably higher up on the list than others, seriously. If I catch you lying about something serious then I can't trust any of your word anymore. My paranoia is THAT bad.
 #
 
 [Thank you for reading.](https://www.youtube.com/watch?v=MjlkBkfLzC8)
 
 For those who don't know what this bio is for, it's for [this place.](https://pony.town/)
 
-I really do not suggest getting into that place if you don't know what it is. It's a shit fest.
+And for those who say that github is for coders, I do have a proper account showcasing my spaghetti ass C++ stuff but I don't want to share a pony town bio with it. It's embarrassing on both ends lol
+
+I really do not suggest getting into pony.town if you don't know what it is. It's a shit fest.
