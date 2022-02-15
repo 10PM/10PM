@@ -6,9 +6,13 @@
 ### ☆ I have a multitude of names but I'd prefer to be called Vince atm
 #### im not good at making bios so its just like this for now lol
 - I'm 19, and a dude
+
    - pronouns that **aren't they/them** are ok with me though
+
 - I have mental issues [don't we all?] so it might take me a bit to process things but I'll do my best!
+
 - I'm off-tab most of the time, if you need to say something feel free to whisper it.
+
 - Due to paranoia, I freely hide, but I'm slowly learning to get over this ^^;
 # 
       
