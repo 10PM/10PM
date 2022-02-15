@@ -1,13 +1,13 @@
 
   <img align="right" alt="PNG" src="https://cdn.discordapp.com/attachments/733735929860194316/942097605406629928/export.png" width="300" height="300" />
 
-`Last updated: 02/12/22`
+`Last updated: 02/14/22`
 ## Want to know some info about me?
 ### ☆ I have a multitude of names but I'd prefer to be called Vince atm
 #### im not good at making bios so its just like this for now lol
 - I'm 19, and a dude
    - pronouns that **aren't they/them** are ok with me though
-
+- I have mental issues [don't we all?] so it might take me a bit to process things but I'll do my best!
 - I'm off-tab most of the time, if you need to say something feel free to whisper it.
 - Due to paranoia, I freely hide, but I'm slowly learning to get over this ^^;
 # 
@@ -33,12 +33,17 @@
 ## DNI List [long but optional to read]
 ### This is not definitive, but you're more likely to get hidden if you fit the category.
 
+- **Repeatedly intentionally ignoring me while you're active and not explaining why/twisting my words to make me look like a fucking idiot while you make me talk to myself**
+   - This is probably going to be temporary since it's a very specific thing, but it's somehow one of the biggest reoccurring issues I've been dealing with as of late, in and outside of PT.
+   - sorry for the t-dump on bio but it's gotten to the point where i have to put this on the list for now.
+   - you know what? **weaponize this trigger. do it. do it if you want to make me suffer.** i dont know what i did to you but i'm sorry if i did anything to deserve this.
+
 - Close-minded people to the point of extremity
   - This is not limited to debates. Please don't get so heated, emotions WILL cloud most people's logic.
 
 - You value the safety/morals of fictional characters over real people's trauma [☆](https://fanlore.org/wiki/The_Three_Laws_of_Fandom)
 
-- You automatically believe that other people's opinions = strongly opposing/supporting the other side
+- **You automatically believe that other people's opinions = strongly opposing/supporting the other side**
 
    - So many of you people need to realize that not everything is black and white when it comes to that.
  
