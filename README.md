@@ -1,11 +1,11 @@
 
   <img align="right" alt="PNG" src="https://cdn.discordapp.com/attachments/733735929860194316/942097605406629928/export.png" width="300" height="300" />
 
-`Last updated: 02/15/22`
+`Last updated: 02/19/22`
 ## Want to know some info about me?
 ### ☆ I have a multitude of names but I'd prefer to be called Vince atm
 #### im not good at making bios so its just like this for now lol
-- I'm 19, and a dude
+- I'm 20, and a dude
 
    - pronouns that **aren't they/them** are ok with me though
 
