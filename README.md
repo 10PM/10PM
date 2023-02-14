@@ -1,7 +1,7 @@
 
   <img align="right" alt="PNG" src="https://cdn.discordapp.com/attachments/733735929860194316/942097605406629928/export.png" width="300" height="300" />
 
-`Last updated: 02/19/22`
+`Last updated: 02/14/23`
 ## Want to know some info about me?
 ### ☆ I have a multitude of names but I'd prefer to be called Vince atm
 #### im not good at making bios so its just like this for now lol
@@ -21,12 +21,12 @@
 
 ## Interests
 
-- Genshin Impact is my current hyperfixation at the moment
+- I'm super into Splatoon right now. I am in a comp team but for the safety of the other members I cannot speak of the details.
 
-       I'm a bit burnt out from it due to a mixture of things, but if you want to play, you can ask for my UID.
+       You may have noticed that my profile has Genshin images, but I don't really associate myself with the fandom nor do I play the game anymore.
 
 - I also really like a handful of games from Nintendo, mostly the MOTHER/Earthbound series.  ♡
-- I'm most likely chilling in **VRChat** since I have a full-body setup and want to make use of it.
+- I very much enjoy visual novels, RPGs, and VR games/applications.
 
        Feel free to ask me more about VR. I love this topic and would like to help or learn from other people!
 #
@@ -54,8 +54,8 @@
 
    - I'm okay with tone tags if they're needed. Just... Please don't use them in every sentence. It feels like a weird filter. 
 
-- Compulsive liars or just big liars in general I really can't trust people like you because I'm easily manipulated. </3
-   - This one is probably higher up on the list than others, seriously. If I catch you lying about something serious then I can't trust any of your word anymore. My paranoia is THAT bad.
+- You believe making skins = part of a fandom
+   - There are exceptions to this like making something from extremely problematic media (Harry Potter, for example) but most of the time I might not even know about the series my ponies are from LMAO
 #
 
 [Thank you for reading.](https://www.youtube.com/watch?v=MjlkBkfLzC8)
