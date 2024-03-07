@@ -1,11 +1,11 @@
 
   <img align="right" alt="PNG" src="https://cdn.discordapp.com/attachments/733735929860194316/942097605406629928/export.png" width="300" height="300" />
 
-`Last updated: 02/14/23`
+`Last updated: 03/06/24`
 ## Want to know some info about me?
-### ☆ I have a multitude of names but I'd prefer to be called Vince atm
+### ☆ Call me Cody or Jude!
 #### im not good at making bios so its just like this for now lol
-- I'm 20, and a dude
+- I'm 22, and a dude
 
    - pronouns that **aren't they/them** are ok with me though
 
@@ -13,7 +13,7 @@
 
 - I'm off-tab most of the time, if you need to say something feel free to whisper it.
 
-- Due to paranoia, I freely hide, but I'm slowly learning to get over this ^^;
+- I hide freely due to paranoia and past experiences with stalking.
 # 
       
       
@@ -21,9 +21,7 @@
 
 ## Interests
 
-- I'm super into Splatoon right now. I am in a comp team but for the safety of the other members I cannot speak of the details.
-
-       You may have noticed that my profile has Genshin images, but I don't really associate myself with the fandom nor do I play the game anymore.
+- Currently hyperfixated on Splatoon, Stardew Valley, and the Scott Pilgrim series.
 
 - I also really like a handful of games from Nintendo, mostly the MOTHER/Earthbound series.  ♡
 - I very much enjoy visual novels, RPGs, and VR games/applications.
@@ -65,3 +63,5 @@ For those who don't know what this bio is for, it's for [this place.](https://po
 And for those who say that github is for coders, I do have a proper account showcasing my spaghetti ass C++ stuff but I don't want to share a pony town bio with it. It's embarrassing on both ends lol
 
 I really do not suggest getting into pony.town if you don't know what it is. It's a shit fest.
+
+i know the images are broken! i'm going to fix that when i have free time C:
