@@ -38,8 +38,6 @@
 - Close-minded people to the point of extremity
   - This is not limited to debates. Please don't get so heated, emotions WILL cloud most people's logic.
 
-- You value the safety/morals of fictional characters over real people's trauma [☆](https://fanlore.org/wiki/The_Three_Laws_of_Fandom)
-
 - **You automatically believe that other people's opinions = strongly opposing/supporting the other side**
 
    - So many of you people need to realize that not everything is black and white when it comes to that.
